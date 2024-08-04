@@ -1,10 +1,4 @@
 
- Danışman: @keyvanarasteh
-
-https://github.com/keyvanarasteh
-
-Öğrenci: Halime Taşkın   
-Öğrenci No: 222016740
 
 İnstagram
 
